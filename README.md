@@ -1,1 +1,0 @@
-# loidymendez.github.io
